@@ -1,0 +1,1 @@
+this is edited template of website to computer devices website
